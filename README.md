@@ -1,2 +1,2 @@
 # Demo 
-Somrthing coola nd dashing is to happen get ready.
+Something cool and dashing is going to happen get ready.
